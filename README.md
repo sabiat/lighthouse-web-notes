@@ -1,4 +1,4 @@
-# [Sabia]'s Notes
+# Sabia's Notes
 
 ## Summary
 
